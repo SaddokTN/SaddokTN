@@ -4,4 +4,4 @@
 💞️ I’m looking to collaborate on projects related to quantum computing education and cybersecurity.
 📫 How to reach me: me@sadoklatrach.com | sadoklatrach.com
 😄 Pronouns: He/Him
-⚡ Fun fact: I co-founded Infinity Solutions, a non-profit to inspire young minds in quantum computing!
+⚡ Fun fact: I founded Infinity Solutions.
